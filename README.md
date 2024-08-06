@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basicly annything I can. 
 - 📫 How to reach me: email or through GitHub
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I've lived in 4 differnet states and counting justin the past 10 years. 
+- ⚡ Fun fact: I've lived in 4 differnet states and counting just in the past 10 years. 
 
 <!---
 TheLofiBard/TheLofiBard is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
